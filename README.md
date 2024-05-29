@@ -1,6 +1,6 @@
 # windows10如何禁用软件
 
-# <a href="https://https://github.com/kiuhd/dfrw/issues/1">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<hr/> <a href="https://github.com/kiuhd/dfrw/issues/1">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 windows10如何禁用软件
 ，在暗夜中划破黑暗，以最快的速度，shè向东南！
@@ -10,7 +10,7 @@ windows10如何禁用软件
 兄弟，你到底出了什么事？
 
 西北之行，在万事俱备之下，立即被搁置！
-http://brian-chu.com
+
 甚至没有丝毫的犹豫。
 
 …………
